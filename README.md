@@ -1,4 +1,4 @@
-## Olá, eu sou Sheila Gonçalves (Shei) ✌
+## Olá, eu sou Sheila Gonçalves (Shei) ✌🏼
 
 ## Atualmente estou em transição de carreira e cursando Análise e Desenvolvimento de Sistemas 3/8
 
